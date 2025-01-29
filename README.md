@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MIB4u, a music-addicted visual artist.
+- 👋 Hi, I’m @MIB4u, a music-addicted visual artist and abstractrix extraordinaire.
 - 👀 I’m interested in too many things.
 - 🌱 I’m currently learning patience; and to become a better person in general.
 - 💞️ I’m looking to collaborate on artistic and creative endeavours.
